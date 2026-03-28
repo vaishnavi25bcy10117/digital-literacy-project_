@@ -1,4 +1,4 @@
-# digital-literacy-project_
+# DIGITAL LITERACY PROJECT
 
 Name: Vaishnavi CH  
 Register Number: 25BCY10117  
